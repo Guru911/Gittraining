@@ -1,2 +1,2 @@
 # Gittraining
-This is like i trying out the thing
+This is like. Trying out the thing
